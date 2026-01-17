@@ -1,6 +1,6 @@
 # Adam Małysz
 
-![Adam Małysz](https://upload.wikimedia.org/wikipedia/commons/f/f6/Adam_Malysz_2005.jpg)
+![Adam Małysz](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Adam_Malysz_2.jpg/250px-Adam_Malysz_2.jpg)
 
 Adam Małysz is a legendary Polish ski jumper and one of the most successful athletes in the history of the sport. Born on December 3, 1977, in Wisła, he became a national hero in Poland, sparking a phenomenon known as "Małyszomania" during the early 2000s. Throughout his illustrious career, he achieved numerous milestones, including four individual World Championship titles—an all-time record—and four overall World Cup titles.
 
